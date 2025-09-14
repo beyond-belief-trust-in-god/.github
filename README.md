@@ -1,1 +1,3 @@
-# .github
+# *Beyond Belief: You Believe in God… But Do You Trust Him?*
+## *Discover 15 hidden, surprising facts about why many believe in God but don’t fully trust Him. A spiritual journey to deepen faith and unlock true surrender. This Story doesn’t preach — it walks beside you. It meets people where they are: exhausted, confused, spiritually tired — and gently guides them from head-deep belief to heart-deep trust.* [More details…](https://spiritualkhazaana.com/web-stories/beyond-belief/)
+## #TrustGod #FaithOverFear #BibleVersesAboutTrust #ChristianMotivation #BeyondBelief #SpiritualAwakening #TrustInGod #BiblicalTruth #DailyDevotional #GodIsFaithful #TrustGod #FaithJourney #SpiritualGrowth #TrustInGod
